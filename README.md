@@ -1,4 +1,4 @@
 ﻿# Andra-Yeet
 Hej hej då bog
-Jag är kool
-i den bara
+**gucci flip flops sucka niggas dick through is sock**
+xdxd frigg niggs
